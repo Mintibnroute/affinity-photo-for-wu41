@@ -1,4 +1,4 @@
-# 
+# Enhance Affinity Photo for macOS with Affinity Photo for macOS secure Action - smart objects and cloud sync, the #1 action. Includes smart objects and cloud sync for a smoother
 
 
 
